@@ -1,4 +1,4 @@
-- Yo! What's up? I'm Afonso, known online like stressz! I'm from Portugal.
+- Yo! What's up? I'm Afonso, known online as stressz! I'm from Portugal.
 - I like this music, gaming and computers. 
 - I'm currently on a professional course of IT, where I learn mostly programmation and I'm looking forward to go to college and continue my studies.
 <!---
